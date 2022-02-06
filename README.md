@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @Bednak
+- 👋 Hi, I’m Kam! (like .com)
