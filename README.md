@@ -1,1 +1,1 @@
-- 👋 Hi, I’m Kam! (like .com)
+- Hi, I’m Kam! (like .com)
