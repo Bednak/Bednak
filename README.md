@@ -1,2 +1,2 @@
 - Hi, I’m Kam! (like .com)
-- Front End Web Developer
+- Front End Web Developer in Chicago, IL
